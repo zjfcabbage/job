@@ -12,13 +12,9 @@
 
 地点：字节跳动是全球化的公司，目前我们在北京、深圳、广州均有研发中心。
 
-联系：邮箱：[zhengjiafeng@bytedance.com](mailto:wuhaitao.sid@bytedance.com)
-
-[](mailto:wuhaitao.sid@bytedance.com)
+联系：邮箱：[zhengjiafeng@bytedance.com](mailto:zhengjiafeng@bytedance.com)
 
 校招同学也可以用内推码投递：WZBY6Q7， 招聘官网：[https://job.bytedance.com/](https://job.bytedance.com/)
-
-[](mailto:wuhaitao.sid@bytedance.com)
 
 简历直接投递到上面的邮箱。记得在邮件标题中标明地点和岗位哦～
 微信：NPCZJFJuantoumen (添加请备注来源)
